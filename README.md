@@ -12,6 +12,6 @@
 XXXFreeVideo、JavWatch 和 JavKing 提供高清内容，无需注册，更新及时。使用“日本AV免会员观看”或“高清无水印”等关键词，帮助快速找到资源。
 注意安全，确保防病毒软件开启，避免广告和潜在风险。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ty20250708/ty10 ）</span>
 
 
